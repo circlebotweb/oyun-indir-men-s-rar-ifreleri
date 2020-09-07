@@ -13,5 +13,3 @@ Need For Speed Heat : https://saglamindir.net/nfs-heat-indir
 İsteklerinizi Support Server de belirtiniz
 
 Support Server : https://discord.gg/Ebx2aaJ
-
-linklere tıklamayın onlar şifre onu kopyalayıp şifre bölümüne yazın
