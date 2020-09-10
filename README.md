@@ -15,3 +15,5 @@ GTA Vice City : https://saglamindir.net/gta-vice-city-indir
 İsteklerinizi Support Server de belirtiniz
 
 Support Server : https://discord.gg/Ebx2aaJ
+
+linkleri tıklamayın kopyalayın parola kısmına yapıştırın
